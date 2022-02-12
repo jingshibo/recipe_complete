@@ -4,4 +4,8 @@
 * add salt
 * and mix well
 
+
 paper for preparation
+
+try some olive oil
+
