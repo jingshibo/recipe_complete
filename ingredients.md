@@ -12,7 +12,4 @@ add some water
 
 and remove cola
 
-sovle problems checking
-
-
 problems
